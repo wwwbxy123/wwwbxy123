@@ -4,7 +4,7 @@
 - 🔭 I’m currently working on AI玄学
 - 🌱 I’m currently learning 灵魂超度
 - 👯 I’m looking to collaborate on 饲养豚鼠
-- 🤔 I’m looking for help with 驯化小动物
+- 🤔 I’m looking for help with 小动物
 - 💬 Ask me about 人工智障
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
